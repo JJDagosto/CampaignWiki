@@ -1,0 +1,1 @@
+Es quién gobernó [[3er pueblo]] durante [[La guerra de los 3 reyes]]. Entendemos que fue victima de [[Arma misteriosa]] junto con su pueblo. No hay recuerdos sobre él más allá de la certeza de su existencia.

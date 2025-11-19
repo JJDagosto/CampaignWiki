@@ -1,0 +1,1 @@
+Diomir es el actual rey y cabeza de la milicia de [[Adlaremse]]. Tiene aspecto humano, pero por lo que sabemos, reinó por al menos 140 años. Fue rey durante [[La guerra de los 3 reyes]] y mantiene este titulo en la actualidad. Por o que sabemos, puede ser quien actualmente tenga el poder sobre [[Arma misteriosa]].

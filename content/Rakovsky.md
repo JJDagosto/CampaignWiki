@@ -1,0 +1,1 @@
+Antiguo rey de [[Zafiria]], un voraz humano. Se dice que murióa a manos de [[Diomir]] en [[La guerra de los 3 reyes]].

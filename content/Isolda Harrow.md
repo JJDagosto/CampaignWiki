@@ -1,0 +1,3 @@
+Capitana de la [[Arpía dorada]]. es quien solicitó ayuda de [[Party]] para luchar contra [[Los piratas de Harvey]]. Tenía un contrato con [[Dorn Kaldor]] para protegerlo y llevarlo a [[Galton]] cuando el barco fue atacado. Peleo hasta el borde de la muerte en la batalla contra [[Harvey]], sobrevivió por la curación de [[Bayleaf]]. 
+Tiene una buena relación con [[Party]] por todo lo que hicieron por la [[Arpía dorada]].
+Tiene una buena colección de libros, aunque dice que varios están censurados por el gobierno de [[Diomir]], evitando hechos del pasado y moldeando la historia a su gusto. 

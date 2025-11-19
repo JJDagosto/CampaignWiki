@@ -1,0 +1,1 @@
+Bosque mágico dentro de [[Adlaremse]]. Es donde se crio [[Elaris Cabeswater]], y donde se encontró con [[Shaal Tza'kar]]. Actualmente está habitado por los druidas del circulo de fuego.

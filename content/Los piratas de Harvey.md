@@ -1,0 +1,1 @@
+Grupo de piratas liderados por [[Harvey]]. Atacaron la [[Arpía dorada]] con el objetivo de secuestrar a [[Dorn Kaldor]]. tras la derrota en el barco, uno de ellos revelo la localización de la [[Base pirata]] tras ser victima de _charm person_ por [[Elaris Cabeswater]]. Posiblemente todos de ellos hayan sido eliminados durante la batalla en [[Base pirata]].
